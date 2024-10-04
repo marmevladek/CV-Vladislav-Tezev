@@ -1,4 +1,4 @@
-# Владислав Тезев
+# Тезев Владислав Вячеславович
 
 Telegram: @marmevladek <br>
 EMail: vladislav.tezev@gmail.com
